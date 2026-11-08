@@ -1,2 +1,3 @@
 # Maximos-vezimeliu-nuomos-sistema
-![Uploading maxima-naujos-kartos-savitarnos-kasos-e1784965825693.jpg…]()
+<img width="679" height="452" alt="imagesfr1" src="https://github.com/user-attachments/assets/afcd17ba-77d2-436f-a8c7-6ad67e723e65" />
+
